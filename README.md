@@ -1,4 +1,4 @@
-  Me chamo Vinicius, no auge da adolescência, vivendo intensamente com meus 16 anos.
+  Me chamo Vinicius, estou no auge da adolescência, vivendo intensamente com meus 16 anos.
 Não sou filho único, tenho dois irmãos que não moram comigo, pois, estou morando em outro lugar devido ao trabalho e escola que são mais perto.
 Contudo, gosto dos dois e não deixo de visita-los.
 O menor, se chama Emanuel com 9 anos e o irmão do meio, Brayan, com 13 anos
